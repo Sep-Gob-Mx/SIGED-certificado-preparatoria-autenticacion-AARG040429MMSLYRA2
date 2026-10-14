@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AARG040429MMSLYRA2
+AARG040429MMSLYRA2
